@@ -1,37 +1,25 @@
-## Welcome to GitHub Pages
+### 强直性脊柱炎人重回正常生活
 
-You can use the [editor on GitHub](https://github.com/sbqwg/as/edit/main/docs/index.md) to maintain and preview the content for your website in Markdown files.
+#风湿跌打通筋丸36元/盒/6粒
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+###极度镇痛安眠
 
-### Markdown
+广西大瑶山中药厂家风湿跌打通筋丸正品批发直销，风湿跌打通筋丸无激素、无添加、无西药成分，正品行货全国配送，立即购买享受健康生活。
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+###缓解疼痛更简单
 
-```markdown
-Syntax highlighted code block
+早睡早起，按时吃饭，一日三餐，白天喝2升温水，不能吃冷的进肚子里。
 
-# Header 1
-## Header 2
-### Header 3
+请相信中华文化5000年传承，不要去相信成立不到50年的风湿病协会，你的身体你自己做主。 微信号 9050150
 
-- Bulleted
-- List
+我对每个强直性脊柱炎客户说的都是早睡早起，一日三餐，白天喝2升温水，不能吃冷的东西进肚子里。可惜，很多强直性脊柱炎人还问我有没有效果更好的。
 
-1. Numbered
-2. List
+强直性脊柱炎的人通过每天晚饭后服用一粒风湿跌打通筋丸6元来控制或减轻炎症，达到缓解疼痛和解除僵硬，第二天一整天的疼痛不影响工作和生活，可以上班工作10个小时挣钱，达到正常日常生活的目标。
 
-**Bold** and _Italic_ and `Code` text
+1个月31天，6x31=186元，2个月360元，1年2000元，10年2万元，20年4万元，30年6万元。
 
-[Link](url) and ![Image](src)
-```
+1-3个月后，逐步减量，能正常生活，上班工作挣钱了，一天一粒，三天一粒也可以第二天挣钱养活自己和家人。
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+吃瑶山神药风湿跌打通筋丸只是减轻炎症的疼痛，让你一整天活动不受影响。
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/sbqwg/as/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+一天三餐都要按时吃饭，晚上10点前睡觉，每天晚上睡觉前通过站立6分钟来放松肌肉。
